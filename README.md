@@ -1,1 +1,1 @@
-# typora_gallery
+# useless pictures
